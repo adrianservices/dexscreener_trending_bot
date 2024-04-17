@@ -4,6 +4,7 @@
 ● DM me from Telegram (https://t.me/swiftservicesowner) if you want to buy full version of the bot. 📭
 
 ● Prices are negotiable. 👍
+# ‼ FEATURES ‼
 ✅ High quality automatic trending!
 
 ✅ Fast and optimized code! 
