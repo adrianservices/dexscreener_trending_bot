@@ -9,8 +9,14 @@
 
 ✅ Fast and optimized code! 
 
-✅Very simple to use!
+✅ Easy to run!
 
-✅ Cheap Prices!
+✅ Guaranteed trending within a few hours!
+
+✅ Multi sessions support!
+
+✅ Proxy support!
+
+✅ Without any ban, error or blacklist!
 
 ✅ DM me for more info.
